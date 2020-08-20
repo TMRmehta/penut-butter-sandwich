@@ -1,0 +1,1 @@
+/* first you have to put penut butter on one peace of bread. Then you put the jelly on the other. And you put the 2 peices of bread together to make a penut butter and jelly sandwich.*/
